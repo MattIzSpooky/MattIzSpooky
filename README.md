@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am Matthijs, a student at the University of Avans.
+I am Matthijs, a student at the Avans University of Applied Science.
 
 <hr/>
 
